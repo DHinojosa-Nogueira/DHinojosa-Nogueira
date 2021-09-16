@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DHinojosa-Nogueira
+- 👀 I’m nutrition researcher
+- 🌱 I’m currently learning Python
+- 📫 How to reach me dhinojosa@ugr.es
