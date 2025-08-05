@@ -1,0 +1,8 @@
+ Specialist researcher in nutrient intake, bioactive compounds and food contaminants. 
+Extensive experience in nutritional epidemiology projects involving diverse populations, particularly vulnerable groups such as pregnant women and children. 
+A significant focus of this work has been exploring the relationship between diet and health outcomes, including obesity, as well as the environmental impact of dietary patterns.
+Additional areas of expertise include related research topics such as adipose tissue browning, by-product valorisation, enhancing food quality, and gut microbiota.
+A core methodological strength involves assessing dietary intake, particularly through the use of food frequency questionnaires (FFQs) and food composition databases (FCDBs).
+The primary research focus is currently on personalised nutrition and integrating emerging technologies into dietary assessment. 
+Interdisciplinary collaboration is welcomed, as is the opportunity to contribute to innovative, interdisciplinary research initiatives.
+Please feel free to contact if you have any questions (dhinojosa@ugr.es)
